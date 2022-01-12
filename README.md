@@ -1,5 +1,5 @@
 # Wassup
-### ![alt text](https://github.com/Valco3/Valco3/blob/main/rick-and-morty-breaking-bad-wallpaper-2560x1600_7.jpg)
+### ![alt text](https://github.com/Valco3/Valco3/blob/main/breaking-bad-varschiki-pustynya.jpg)
 
 <!--
 **Valco3/Valco3** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
